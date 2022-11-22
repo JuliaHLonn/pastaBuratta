@@ -7,10 +7,13 @@
 4. En burrata
 5. Eventuellt kalkonbacon
 Det här är ett recept på **pasta**  
-Bara gör *såsen*
+Gör *såsen*
   
-> Stek bacon om du ska ha det
+> Den är så god och krämig
 >
->Lägg allt på varann
+>Bara lägg allt på varann
 
-### Lägg till parmesan om du känner dig dekadent
+### Lägg till parmesan om du känner dig dekadent, och färska örter  
+  
+
+Här är en bild och kanske ett recept [Pasta](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.koket.se%2Fsnabb-pasta-och-tomatsas-med-burrata&psig=AOvVaw0QhJE7TGOhsWyuliC2IqQJ&ust=1669210793718000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCKCj7PX0wfsCFQAAAAAdAAAAABAE)
