@@ -6,4 +6,5 @@
 3. Färska tomater
 4. En burrata
 5. Eventuellt kalkonbacon
-Det här är ett recept på **pasta**
+Det här är ett recept på **pasta**  
+Bara gör *såsen* 
